@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+[waste of money](https://www.games-workshop.com/en-NZ/Home?_requestid=4051051)
