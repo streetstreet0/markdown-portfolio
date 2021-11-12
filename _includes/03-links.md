@@ -1,0 +1,1 @@
+[waste of money](https://www.games-workshop.com/en-NZ/Home?_requestid=4051051)

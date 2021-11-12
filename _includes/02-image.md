@@ -1,0 +1,1 @@
+![kyogre breaks its neck](https://i.redd.it/fv9n01hysen71.jpg)
